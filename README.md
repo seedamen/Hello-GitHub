@@ -1,4 +1,7 @@
 # Hello-GitHub
-ᕙ( ᐖ )ᔭ
+================
+ᕙ( ᐖ )ᔭᕙ( ᐖ )ᔭᕙ( ᐖ )ᔭ
 
-hrhr
+branch reamde
+
+顏文字 from 加拿大原住民文字
